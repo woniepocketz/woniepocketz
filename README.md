@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @woniepocketz oe just wonnie!
+- 👋 Hi, I’m @woniepocketz or just wonnie!
 - 👀 I’m interested in: drawing, cosplay, music, and sometimes writing~
 - 🌱 I’m currently learning: chai bot building?
 - 💞️ I’m looking to collaborate on ...
